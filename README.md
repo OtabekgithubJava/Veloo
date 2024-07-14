@@ -1,9 +1,11 @@
-![Uploading telegram-cloud-document-2-5233361493478628324.jpg…]()
+![telegram-cloud-photo-size-2-5233651064924921785-y](https://github.com/user-attachments/assets/bc6a2453-c7a0-45b4-a85d-055ee65ef5b7)
+
+![telegram-cloud-document-2-5233361493478628324](https://github.com/user-attachments/assets/f1c0e124-55ba-4379-9592-ea60cf65d61d)
 
 ![telegram-cloud-document-2-5233361493478628329](https://github.com/user-attachments/assets/0f4021f2-c673-4995-af34-4c4867e05183)
 ![telegram-cloud-document-2-5233361493478628327](https://github.com/user-attachments/assets/b66d4914-e7e8-4646-bba9-2738886861ae)
 
-![Uploading telegram-cloud-document-2-5233361493478628324.jpg…]()
+
 
 ![telegram-cloud-document-2-5233361493478628322](https://github.com/user-attachments/assets/23c19456-7449-459a-baf9-134339d9758d)
 
